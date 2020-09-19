@@ -1,0 +1,3 @@
+My name is Andrew Vignali. I am 24 years old and work as a Consultant in the Resturcutring subdivision of Duff an Phelps in New York.
+I would like to transition into the Operations division of a major bank and work in clearing/settling trades. Upon that, I would like to work into a more front-office type role.
+I choose FinTech as a career path because many of the jobs I am applying for require some kind of the techincal and coding background, and I hope that this class will instill a good enough understand of the subject in order to get a leg up on the job.
